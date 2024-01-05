@@ -5,4 +5,3 @@
 
 ![Captura de Tela (348)](https://github.com/DabiLiam/p4-acessos/assets/130109019/f86a42fc-4a54-46ae-af04-9d50159b886b)
 
-![Captura de Tela (349)](https://github.com/DabiLiam/p4-acessos/assets/130109019/699a7b79-6c94-4ebc-b6eb-1ef9343b13cd)
